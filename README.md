@@ -1,4 +1,4 @@
-## Bem Vindo 👋 Diego 
+## Bem Vindo 👋
 
 ## Oiii eu sou a Diego Bernardo, estudante e apaixonado por de programação e tecnologia!
 
